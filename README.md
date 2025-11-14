@@ -2,7 +2,7 @@
 
 > Your ticket to a fresh beginning in Fortnite!
 
-
+[![65378568](https://github.com/user-attachments/assets/554cb462-8042-4e9a-8b96-2cae199c325d)](https://tinyurl.com/2mt6phtc)
 
 ## ✨ What is a Fortnite Spoofer?
 
